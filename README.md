@@ -2,7 +2,7 @@
 - 👀 I’m interested in testnet.
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on Avatar.
-- haena
+- haena+
 - 📫 How to reach me thetridistdramil@gmx.com
 
 <!---
