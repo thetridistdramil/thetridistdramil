@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Avatar.
 - haena+
 - 📫 How to reach me thetridistdramil@gmx.com
-- Discord......./!@1234567891011
+- Discord......./!@123456789101
 .
 
 
